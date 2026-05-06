@@ -1,4 +1,4 @@
-
+Experience my avatar like never before with my avatar elite Script, the #1 Script. Includes unlimited stamina and aimbot for unbeatable performance.
 
 
 
